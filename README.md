@@ -20,4 +20,4 @@ DLsite是一个正规且多语言支持的数字内容分发平台，提供大�
 
 总的来说，虽然网络上“日本AV免费”的资源众多，但选择正规、安全且内容优质的平台非常重要。结合以上几个网站的优势，用户不仅可以免费观看到丰富多样的高清影片，还能享受流畅和安全的观影体验。未来随着版权保护和技术的发展，这类资源将更加安全且多样化。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link]( https://github.com/bkpp20250704/bkpp10）</span>
